@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @RightTapok
+- 👀 I’m interested in Gachi
+- 🌱 I’m currently learning my life
